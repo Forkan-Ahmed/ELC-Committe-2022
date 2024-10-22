@@ -1,2 +1,2 @@
 # ELC-Committe-2022
-You can find the  English Language Club 2022 Committee's  approved list here.
+You can find the  English Language Club 2022 Committee's  approved list here as a pdf file.
